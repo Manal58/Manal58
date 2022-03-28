@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 
 ### Manal Moflih 🌝
 
-Software Engineer 💻 at ENSIAS 
+Software Student Engineer 💻 at ENSIAS 
